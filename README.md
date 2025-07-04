@@ -1,0 +1,1 @@
+# Gecekondular1.link
